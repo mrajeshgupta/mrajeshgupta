@@ -92,7 +92,7 @@ I enjoy creating engaging learning experiences using technology, coding, AI tool
 
 ## 📫 Connect With Me
 
-📧 it.svvs2023@gmail.com
+📧 mrajeshgupta@gmail.com
 
 ---
 
