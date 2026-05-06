@@ -1,6 +1,5 @@
 # Hi there 👋 I'm Rajesh M
 
-🎓 Computational Thinking & Artificial Intelligence Faculty  
 💻 Computer Science Educator | Math Teacher | AI Enthusiast  
 📍 Hyderabad, India  
 
